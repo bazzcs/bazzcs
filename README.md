@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @bazzcs
+- 👀 I’m interested in physics and mechanical engineering
+- 🌱 I’m currently learning HTML and CSS
+- 💞️ I’m looking to collaborate on n/a
+- 📫 How to reach me: basil.d3636@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: played soccer semi-professionally, am a salaried counter-strike player!
